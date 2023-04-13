@@ -1,2 +1,0 @@
-# jackfer.github
-mi pagina
